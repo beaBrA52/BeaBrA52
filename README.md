@@ -13,13 +13,13 @@
 
 Любишь Sprunki? Тогда тебе сюда! Я создаю собственные моды, персонажей, музыкальные идеи и необычные версии Sprunki!
 
-(Заходи здесь)[https://www.cocrea.world/@beaBrA52]
+!(Заходи здесь)[https://www.cocrea.world/@beaBrA52]
 
 ## ▶️ Мой YouTube-канал
 
 У меня также есть собственный YouTube-канал(кто бы мог подумать) где выходят видео, развлечения, игровые ролики и другой интересный контент!
 
-(Заходи здесь!)[https://youtube.com/channel/UCJNpDXZvkrK7QElF7ukOZGA?si=PVxQfkfYTdYxOevH]
+!(Заходи здесь!)[https://youtube.com/channel/UCJNpDXZvkrK7QElF7ukOZGA?si=PVxQfkfYTdYxOevH]
 
 ## 🚀 Что тебя ждёт?
 
