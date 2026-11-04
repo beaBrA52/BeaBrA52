@@ -73,7 +73,7 @@
 
 На телефон в АПК файле
 
-ЭЛЬ ДРИФТО Симулятор_1_1.apk
+[Скачивай тут](https://github.com/beaBrA52/BeaBrA52.br/releases/tag/Games)
 
 ## 🏆 Главная цель
 
